@@ -3,7 +3,9 @@
 ## *``" I see in your face, there is so much guilt inside your heart "``*
 <img width="735" height="208" alt="tumblr_13511ad44cbb0536d250739d6f481e3f_dcfbbeb9_1280" src="https://github.com/user-attachments/assets/1922fef5-2875-4e9d-b41f-e472fc4acdac" /> 
 
-**Polites** / Pluto !     He / Mirror pronouns !
+# 'Was previously salvationfortheunion !'
+
+**Polites** / Pluto !  or **Hermes** / Hyacinth . He / Mirror pronouns !
 
 Mulifandom, Current hyperfixations: 
 
