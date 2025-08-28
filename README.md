@@ -3,12 +3,6 @@
 ## *``" I see in your face, there is so much guilt inside your heart "``*
 <img width="735" height="208" alt="tumblr_13511ad44cbb0536d250739d6f481e3f_dcfbbeb9_1280" src="https://github.com/user-attachments/assets/1922fef5-2875-4e9d-b41f-e472fc4acdac" /> 
 
-for Angie !!
-
-<img width="724" height="572" alt="image" src="https://github.com/user-attachments/assets/2c131643-7eaf-4518-a0be-11f81ba9523c" />
-
-
-
  ![blinkiesCafe-wU](https://github.com/user-attachments/assets/1ed3f32b-d524-48d0-bb10-7f9e9dc10544) ![blinkiesCafe-K6](https://github.com/user-attachments/assets/f75f06f3-b39c-4762-8a4c-633457817cf4) ![blinkiesCafe-gB](https://github.com/user-attachments/assets/eb8b4820-e905-499c-96dd-358e991acab1)
 
 
